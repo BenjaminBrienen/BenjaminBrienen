@@ -39,7 +39,7 @@ If you would like to collaborate with me on [`wgsl-analyzer`], get in touch!
 
 ## 😄 Pronouns
 
-He/him or they/them depending on how you feel about gendered language :P
+Masculine or neutral pronouns depending on how you feel about gendered language :P
 
 ## ⚡ Fun fact
 
