@@ -43,7 +43,7 @@ He/him or they/them depending on how you feel about gendered language :P
 
 ## ⚡ Fun fact
 
-I like Northern Europe's weather more than sunny Florida! 😲
+I like Northern Europe's weather more than that of sunny Florida! 😲
 
 ## 📫 How to reach me
 
